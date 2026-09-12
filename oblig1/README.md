@@ -1,3 +1,8 @@
+Open PDF file to see the assignment
+
+
+
+
 what was dificult, what was easy, was there anything you could have done better?
 
 - I liked the assignment
