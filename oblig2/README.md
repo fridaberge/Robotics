@@ -1,3 +1,7 @@
+Open the PDF to see assignment
+
+
+
 A README.txt containing a short reflection on the assignment; 
 
 What was difficult?
